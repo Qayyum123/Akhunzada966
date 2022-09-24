@@ -1,0 +1,2 @@
+# Akhunzada966
+Succotash, that savory mélange of corn and beans, is a noble dish with a long history. We have 17th-century Native Americans to thank for it; they introduced the stew to the struggling colonial immigrants. Composed of ingredients unknown in Europe at the time, it gradually became a standard meal in the settlers’ kitchens.  The name is a somewhat Anglicized spelling of the Narragansett Indian word “msickquatash,” which referred to a simmering pot of corn to which other ingredients were added.
